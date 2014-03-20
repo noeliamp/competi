@@ -1,2 +1,1 @@
-ya se kung fu
-
+ya se kung fu, gano pablo
